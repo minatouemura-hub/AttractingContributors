@@ -7,3 +7,4 @@ My favorite novel is 「Pride and Goodness(Mitsuki Tsujimura)」
 
 # List of place
 - 「西の魔女が死んだ/The Witch of the West is Dead」 (梨木香歩/Kaho Nasiki)
+- 暗いところで待ち合わせ
