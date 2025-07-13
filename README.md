@@ -10,3 +10,5 @@ the few but the heavy:book 2
 - 「西の魔女が死んだ/The Witch of the West is Dead」 (梨木香歩/Kaho Nasiki)
 - "The Long Goodbye" by Raymond Chandler
 - 特別法第001条DUST（ダスト）(山田悠介/Yamada Yuusuke)
+- 「Darren Shan(Darren Shan)」/「ダレン・シャン(ダレン・シャン)」
+
