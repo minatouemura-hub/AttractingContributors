@@ -3,7 +3,7 @@
 </p>
 
 # What is your favorite novel
-My favorite novel is 「Pride and Goodness(Mitsuki Tsujimura)」
+My favorite novel is 「傲慢と善良/Pride and Goodness(辻村　深月/Mitsuki Tsujimura)」
 
 # List of place
 - 「西の魔女が死んだ/The Witch of the West is Dead」 (梨木香歩/Kaho Nasiki)
